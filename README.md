@@ -11,7 +11,7 @@
 
 ​
 
-### 🅢🅘🅣🅗🅤🅜 🅓🅘🅛🅢🅗🅐🅝 😜
+### CHAMUDITHA LAKSHAN 😜
 
 ![Visitor Count](https://profile-counter.glitch.me/{chamudithalakshan}/count.svg)
 
